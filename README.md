@@ -1,5 +1,5 @@
 #Carolina Verrastro de Almeida Donato
-###+44 7749 599869 | carolverrastro8@gmail.com | www.linkedin.com/in/carolina-verrastro
+***+44 7749 599869 | carolverrastro8@gmail.com | www.linkedin.com/in/carolina-verrastro***
 
 ## Professional Summary
 Results-oriented computer science graduate with junior experience in back-end development, artificial intelligence, and data science. Passionate about leveraging technology to drive innovation and deliver exceptional results. Demonstrated ability to optimize code, enhance software systems, and continuously seek opportunities for skill improvement. Committed to delivering high-quality solutions through a proactive and collaborative approach.
