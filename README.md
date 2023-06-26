@@ -1,4 +1,4 @@
-#Carolina Verrastro de Almeida Donato
+# Carolina Verrastro de Almeida Donato
 ***+44 7749 599869 | carolverrastro8@gmail.com | www.linkedin.com/in/carolina-verrastro***
 
 ## Professional Summary
